@@ -1,10 +1,11 @@
 #  Video Essay
+
  
-Summary
+Summary -
 
 This video takes a look at the pet-to-threat phenomenon, and applies this analysis to the character Harper in HBO’s Industry. The pet-to-threat phenomenon is a term used to describe attitudes towards Black women throughout their career in corporate environments. They begin as the “office pet,” being acknowledged and appreciated, but underutilized. Then overtime is seen as the “office threat,” and being ignored and isolated by their co-workers. Harper in Industry isn’t the only person of color at Pierpoint, but she is the only Black woman and this distinction makes her an outsider. 
 
-Credits
+Credits -
 
 Alexander Suhorucov, Pexels, People Using Laptop Together, https://www.pexels.com/video/people-using-laptop-together-6534143/ 
 Antoni Shkraba, Pexels, A Woman Using a Laptop on a Park Bench, https://www.pexels.com/video/a-woman-using-a-laptop-on-a-park-bench-5149323/ 
