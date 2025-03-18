@@ -13,13 +13,21 @@ Alexander Suhorucov, Pexels, People Using Laptop Together, https://www.pexels.co
 Antoni Shkraba, Pexels, A Woman Using a Laptop on a Park Bench, https://www.pexels.com/video/a-woman-using-a-laptop-on-a-park-bench-5149323/ 
 
 Gregor Quendel, Dreamlike Piano and Strings Soundscape, FreeSound, https://freesound.org/people/GregorQuendel/sounds/779187/ 
+
 Hidden Figures, 20th Century Studios
+
 Industry, Season One Episode One, HBO
+
 Industry, Season One Episode Three, HBO
+
 Industry, Season One Episode Four, HBO
+
 Industry, Season One Episode Five, HBO
+
 Industry, Season One Episode Eight, HBO
+
 Industry, Season Two Episode Eight, HBO
+
 Industry, Season Three Episode Four, HBO
 
 Johann Sebastian Bach, French Suite No. 2 in C minor - BWV 813 - Arranged for Strings, 
