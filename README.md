@@ -10,24 +10,13 @@ Because Industry is a TV show, and this video essay deals with race, having visu
 
 My peers gave great feedback on how my essay could be more clear and my thesis more refined. I thought creating this essay was a lot of fun, but the hard part was narrowing down what exactly I wanted to say and wanted the viewers to take away. I knew I wanted to make a video about Industry but didn’t know about the pet-to-threat phenomenon until I started researching for this essay. My peers also said they didn’t know about this theory so it was great to be able to make something informative that people didn’t know about previously. 
 
-
-# Sources 
-
-King, Jack. Is Industry the most insightful TV show about race and class in the workplace? GQ, 29 Nov. 2024, https://www.gq-magazine.co.uk/article/industry-race-and-class. 
-
-Motro, Daphna and Jonathan B. Evans, et. al,. The “Angry Black Woman” Stereotype at Work, Harvard Business Review, 31 Jan. 2022, https://hbr.org/2022/01/the-angry-black-woman-stereotype-at-work.
-
-Oladipo, Gloria. How HBO’s Industry explores the unsatisfactory role-playing that workplaces demand of Black women, The Guardian, 8 Sept. 2024, https://www.theguardian.com/tv-and-radio/article/2024/sep/08/hbo-industry-workplace-black-women  
-
-Paulise, Luciana. How Black Women Can Overcome The Pet To Threat Phenomenon In 7 Steps, Forbes, 23 Feb. 2023, https://www.forbes.com/sites/lucianapaulise/2023/02/23/how-black-women-can-overcome-the-pet-to-threat-phenomenon-in-7-steps/.
-
-Thomas, Kecia M. The Persistence of Pet to Threat, Forbes, 13 Jan. 2024, https://www.forbes.com/sites/keciathomas/2024/01/13/the-persistence-of-pet-to-threat/. 
-
 # Credits 
 
 Alexander Suhorucov, Pexels, People Using Laptop Together, licensed under Pexels, https://www.pexels.com/video/people-using-laptop-together-6534143/ 
 
 Antoni Shkraba, Pexels, A Woman Using a Laptop on a Park Bench, licensed under Pexels, https://www.pexels.com/video/a-woman-using-a-laptop-on-a-park-bench-5149323/ 
+
+Daphna Motro, Jonathan B. Evans, et. al, The “Angry Black Woman” Stereotype at Work, Harvard Business Review, https://hbr.org/2022/01/the-angry-black-woman-stereotype-at-work
 
 Frédéric Chopin, Waltz in E Minor - B. 56 - Arranged for Music Box, Gregor Quendel/FreeSound, licensed under Attribution NonCommerical 4.0, https://freesound.org/people/GregorQuendel/sounds/722955/
 
